@@ -16,7 +16,7 @@
 
 - 📄 Know about my experiences [https://github.com/Rudragupta-1](https://github.com/Rudragupta-1)
 
-- ⚡ Fun fact **I am extrovert to people and introvert to my work.**
+- ⚡ Fun fact **I am extrovert and introvert about my work to people.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
